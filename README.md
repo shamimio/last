@@ -1,6 +1,0 @@
- <article></article><input data="dot"><a href="https://tinyurl.com/ydyo7q9v">Wisconsin vs Illinois  </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input> 
- <article></article><input data="dot"><a href="https://tinyurl.com/ybsjegym">Miami vs North Carolina  </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input> 
- <article></article><input data="dot"><a href="https://tinyurl.com/y72rpwpp">Oklahoma State vs West Virginia  </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input> 
- 
- <article></article><input data="dot"><a href="https://tinyurl.com/y8meywcm"><article>ma</article><article>n utd  </article><article>v</article><article>s </article><article>totte</article><article>nham  </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input>
- <article></article><input data="dot"><a href="https://tinyurl.com/y9exxrk9">Rutgers vs Michigan  </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input> 
